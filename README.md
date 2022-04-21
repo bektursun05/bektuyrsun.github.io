@@ -1,1 +1,0 @@
-# bektuyrsun.github.io
